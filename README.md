@@ -1,1 +1,1 @@
-# Infografico---Soft-e-Hard-skills-Atividade-de-Design-Profissional
+# Soft-e-Hard-skills-Atividade-de-Design-Profissional 
